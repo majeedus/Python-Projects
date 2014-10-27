@@ -1,4 +1,4 @@
-## Project 4 - America
+## America
 ## 9/25/2012
 ## Usman M.
 
